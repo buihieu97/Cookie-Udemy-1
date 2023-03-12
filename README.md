@@ -5,6 +5,8 @@
 - *Nếu Cookie Die , các bạn có thể nhắn mình qua Facebook cá nhân mình gim dưới Post này*
 - *Sử dụng có ý thức giúp mình !*
 - *Donate mình cốc Trà Đá 3K (nếu muốn cảm ơn) tại : [***QR_CODE***](https://www.facebook.com/stories/589846576387529/?source=profile_highlight&view_single=false) 𝕄𝔹 𝔹𝕒𝕟𝕜 𝟚𝟚𝟚𝟚𝟚𝟚𝟠𝟘𝟛𝟚𝟘𝟘𝟘*
+
+**#Infor và Hướng dẫn sử dụng!#**
 1 . Link Facebook mình : [***Here***](https://www.facebook.com/N.V.D.283/)
 
 2 . Cookie Editor dùng để Import Code : [***Here***](https://chrome.google.com/webstore/detail/cookie-editor/hlkenndednhfkekhgcdicdfddnkalmdm)
