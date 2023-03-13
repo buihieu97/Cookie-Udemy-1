@@ -1,10 +1,10 @@
 **[UDEMY BUSSINESS PLAN Cookie ver1.0 REG Try 7 Days]** 
 
+- *[Donate mình cốc Trà Đá 3K (nếu muốn cảm ơn) để mình có động lực duy trì Cookie cho cộng đồng tại : [***QR_CODE***](https://www.facebook.com/stories/589846576387529/?source=profile_highlight&view_single=false) 𝕄𝔹 𝔹𝕒𝕟𝕜 𝟚𝟚𝟚𝟚𝟚𝟚𝟠𝟘𝟛𝟚𝟘𝟘𝟘]*
 - *Sử dụng Cookie cho mục đích học tập – nghiên cứu*
 - *Khi vào được Account của mình rồi , vui lòng không thay đổi bất kể thông tin gì* 
 - *Nếu Cookie Die , các bạn có thể nhắn mình qua Facebook cá nhân mình gim dưới Post này*
 - *Sử dụng có ý thức giúp mình !*
-- *Donate mình cốc Trà Đá 3K (nếu muốn cảm ơn) tại : [***QR_CODE***](https://www.facebook.com/stories/589846576387529/?source=profile_highlight&view_single=false) 𝕄𝔹 𝔹𝕒𝕟𝕜 𝟚𝟚𝟚𝟚𝟚𝟚𝟠𝟘𝟛𝟚𝟘𝟘𝟘*
 
 **#Infor và Hướng dẫn sử dụng!#**
 
