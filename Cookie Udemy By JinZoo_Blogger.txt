@@ -1,7 +1,7 @@
 [
     {
         "domain": "www.udemy.com",
-        "expirationDate": 1678804639.303316,
+        "expirationDate": 1678804639.999999,
         "hostOnly": true,
         "httpOnly": false,
         "name": "ud_cache_language",
