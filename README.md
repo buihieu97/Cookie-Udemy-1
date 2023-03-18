@@ -1,10 +1,11 @@
 **[UDEMY BUSSINESS PLAN Cookie ver1.0 REG Try 7 Days]** 
 
 - *[Donate mình cốc Trà Đá 3K (nếu muốn cảm ơn) để mình có động lực duy trì Cookie cho cộng đồng tại : [***QR_CODE***](https://www.facebook.com/stories/589846576387529/?source=profile_highlight&view_single=false) 𝕄𝔹 𝔹𝕒𝕟𝕜 𝟚𝟚𝟚𝟚𝟚𝟚𝟠𝟘𝟛𝟚𝟘𝟘𝟘]*
-- *Sử dụng Cookie cho mục đích học tập – nghiên cứu*
-- *Khi vào được Account của mình rồi , vui lòng không thay đổi bất kể thông tin gì* 
-- *Nếu Cookie Die , các bạn có thể nhắn mình qua Facebook cá nhân mình gim dưới Post này*
-- *Sử dụng có ý thức giúp mình !*
+- *50K/1 Acc trial 7 ngày*
+- *100K thì Reg Account bạn dùng 1 tháng* 
+- *299K thì học tài khoản Udemy Business của mình ( Không như Cookie , khỏi lo bị Out - mình hỗ trợ ) - Business hạn dùng đến tháng 9/2023 ) . Đối với sinh viên /học sinh / giáo viên / giảng viên trong ngành giáo dục được ưu đãi 222.222vnđ*
+-*•	Mua về mà dung – chả ai giúp chùa mãi được đâu !*
+**•	Công sức bỏ ra – không phải tự nhiên mà có !*
 
 **#Infor và Hướng dẫn sử dụng!#**
 
@@ -21,3 +22,8 @@ Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài ,sự nhi�
 **![image](https://user-images.githubusercontent.com/24869201/224574736-bb75352a-5def-4d35-a14f-0986706d09d8.png)**
 
 
+**•	50K/1 Acc trial 7 ngày**
+**•	100K thì Reg Account bạn dùng 1 tháng**
+**•	299K thì học tài khoản Udemy Business của mình ( Không như Cookie , khỏi lo bị Out - mình hỗ trợ ) - Business hạn dùng đến tháng 9/2023 ) . Đối với sinh viên /học sinh / giáo viên / giảng viên trong ngành giáo dục được ưu đãi 222.222vnđ **
+**•	Mua về mà dung – chả ai giúp chùa mãi được đâu !**
+**•	Công sức bỏ ra – không phải tự nhiên mà có !**
