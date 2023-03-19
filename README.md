@@ -18,4 +18,4 @@
 
 Note : Mình sẽ không Share Trick Reg tài khoản ra bên ngoài ,sự nhiệt tình và tử tế luôn đến từ cái tâm - vì cộng đồng , các bạn vui là mình cũng vui sau một ngày làm việc căng thẳng mệt mỏi ,  nên các bạn có hỏi mình bán Trick hay Mua rẻ cho Seller sẽ không rep đâu ạ (Mình BLOCK thẳng luôn nhé !). Cảm ơn , chúc mọi người một ngày làm việc hiệu quả và hạnh phúc !
 
-**![image](https://user-images.githubusercontent.com/24869201/226203095-29a905f3-963e-4f35-9464-2283a5ba234c.png)**
+**![image](https://user-images.githubusercontent.com/24869201/226203301-7891716e-e213-488a-b17a-f0544da3c2e9.png)**
